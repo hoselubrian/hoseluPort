@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning html, css and javascript
 - 💞️ I’m looking to collaborate on learning the web development languages
-- 📫 How to reach me, through email hoselubryan47@gmail.com or through instagram handle timanbrya47 or even whatsapp +254745134476
+- 📫 How to reach me, through email hoselubryan47@gmail.com or through instagram handle timanbryan47 or even whatsapp +254745134476
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
